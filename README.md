@@ -1,1 +1,4 @@
-After spending over a decade studying the actuarial profession, I rediscovered a lifelong passion for developing and started to build my career as a software engineer. It's now been about three years since my career change, and I love to hear from folks who are thinking about or actively navigating their own transitions.
+🌊 pushing against the tide, somewhere in between the software engineers and the capital vampires.
+🧠 never stop thinking -- gen AI can't do it for you.
+🌎 citizen of Earth.
+🎭 ars longa, vita brevis.
